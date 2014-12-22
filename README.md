@@ -35,20 +35,28 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The repentance of Iohn Haren priest and his returne to the Church of God; publickly by him recited i
+
 #####Body#####
 
-1. The prayer of king Manaſſes when he was priſoner in Babylon.
+1. 
+The Repentance of Iohn Haren, and his returne to the Church of God, publickely by him recited in the French Church at Wezell, in the preſence of the Senate, compoſed of the Miniſters and the people aſſembled togeather vpon the 7. day of March, Anno. 1610.
 
-1. Of the Corporall abſence of Chriſt in the Sacrament.
+1. 
+THE Repentaunce of IOHN HAREN, and his Conuerſion from the Church of Rome to the true Church of God, openly publiſhed and made by him in the French Church, remayning in Wezell, in the preſence of the wiſe and diſcreete Senat of the ſame place, the 7. day of March. Anno. 1610.
 
-1. Of Tranſubſtantiation.
+    _ The prayer of king Manaſſes when he was priſoner in Babylon.
 
-1. Of Purgatory, and the Sacraments.
+1. The Conuerſion of a Doctor in Spaine.
 
-1. Of Auricular confeſſion.
+    _ Of the Corporall abſence of Chriſt in the Sacrament.
 
-1. Of Chriſt the Sonne.
+    _ Of Tranſubſtantiation.
+
+    _ Of Purgatory, and the Sacraments.
+
+    _ Of Auricular confeſſion.
+
+    _ Of Chriſt the Sonne.
 
 **Types of content**
 
